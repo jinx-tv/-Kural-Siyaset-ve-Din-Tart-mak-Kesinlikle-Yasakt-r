@@ -1,0 +1,1 @@
+# -Kural-Siyaset-ve-Din-Tart-mak-Kesinlikle-Yasakt-r
